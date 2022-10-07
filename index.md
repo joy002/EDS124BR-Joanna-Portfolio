@@ -4,5 +4,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 
 <br>
-[EDS124BR Joanna - Repeat Animal program](https://youtu.be/dgy4d8HLOvY)
+[EDS124BR Joanna - repeat animal program](https://youtu.be/dgy4d8HLOvY)
 <br>
