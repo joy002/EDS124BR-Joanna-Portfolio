@@ -6,3 +6,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - repeat animal program](https://youtu.be/63GkRrfqieo)
 <br>
+[EDS124BR Joanna - mice drawing octagon](https://youtu.be/4XtnpJrqVFQ)
+<br>
