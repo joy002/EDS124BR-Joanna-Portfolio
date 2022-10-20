@@ -12,3 +12,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - variable](https://youtu.be/n5pAg0hNjMc)
 <br>
+[EDS124BR Joanna - variable](https://youtu.be/fTIHBJQFP7s)
+<br>
