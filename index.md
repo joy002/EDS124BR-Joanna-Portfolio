@@ -16,3 +16,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - clicking the ball](https://youtu.be/C4h9v5hbDr8)
 <br>
+[EDS124BR Joanna - penguin swim](https://youtu.be/UydqnOUid48)
+<br>
