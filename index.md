@@ -14,3 +14,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - conditional repeat](https://youtu.be/fTIHBJQFP7s)
 <br>
+[EDS124BR Joanna - clicking the ball](https://youtu.be/C4h9v5hbDr8)
+<br>
