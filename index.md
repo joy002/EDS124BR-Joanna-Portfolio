@@ -22,3 +22,5 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - abstraction](https://youtu.be/gda9g0cc6hQ)
 <br>
+[EDS124BR Joanna - list](https://youtu.be/HzvRJTZlsCo)
+<br>
