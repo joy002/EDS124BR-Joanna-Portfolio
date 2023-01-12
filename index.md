@@ -24,3 +24,4 @@ Joanna Yang - EDS124BR Portfolio
 <br>
 [EDS124BR Joanna - list](https://youtu.be/HzvRJTZlsCo)
 <br>
+![Screenshot 2022-11-07 at 10 23 49 PM](https://user-images.githubusercontent.com/73975897/212163415-3662c3dc-5e03-4d58-888b-3d86f520662a.png)
